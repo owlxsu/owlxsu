@@ -1,6 +1,6 @@
 • haii im owl/loopd
 • pronouns; she/her
-• !i am UNDER 15 so iwec
+• !i am UNDER 15 so iwc
 • feel free to int w me anytime!
 
 <!---
