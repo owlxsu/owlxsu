@@ -1,6 +1,5 @@
 • haii im loop!!
 • she/her
-• !15-
 • feel free to int w me unless said otherwse!
 • eng/ru
 
