@@ -1,7 +1,5 @@
-• haii im loop!!
-• she/her
-• feel free to int w me unless said otherwse!
-• eng/ru
+meowmeowmeow meow
+check rentry for info
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=owlxsu&color=693382)
 <!---
